@@ -1,4 +1,5 @@
 - 👋 Hi, I’m @kitashi-kun
+- My name is Rishav Raj.
 - 👀 I’m interested in learning and trying new things.
 
 
